@@ -1,0 +1,8 @@
+# PasteZort
+Pastejacking - PasteZort
+
+# Uso:
+
+
+
+
